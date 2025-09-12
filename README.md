@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-Autodidata | Apaixonado por Tecnologia | Espirito Empreendedor | Design de Software.<br><br>Há uma década, comprometido com a arte de desenvolver software, em meio a muitas linhas de código, ideias que surgem durante o banho, soluções reveladas em sonhos e muito Café. Tive a oportunidade de trabalhar em diversos projetos e equipes, aprendi muito, ensinei, fiz muitos amigos, me desafiei inúmeras vezes, falhei algumas, mas continuei tentando até conseguir. Esse é o sentimento que me impulsiona; a cada novo desafio, uma nova oportunidade de aprendizado e criatividade.<br><br>Profissional multidisciplinar trilhando a jornada T-Shaped.
+Autodidata | Apaixonado por Tecnologia | Espirito Empreendedor | Design de Software.<br><br>Há mais de uma década, comprometido com a arte de desenvolver software, em meio a muitas linhas de código, ideias que surgem durante o banho, soluções reveladas em sonhos e muito Café. Tive a oportunidade de trabalhar em diversos projetos e equipes, aprendi muito, ensinei, fiz muitos amigos, me desafiei inúmeras vezes, falhei algumas, mas continuei tentando até conseguir. Esse é o sentimento que me impulsiona; a cada novo desafio, uma nova oportunidade de aprendizado e criatividade.<br><br>Profissional multidisciplinar trilhando a jornada T-Shaped.
 
 
 ## 🌐 Contatos:
